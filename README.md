@@ -6,5 +6,5 @@ Hi, I'm Andrew Miyaguchi. I'm a student studying computer engineering who curiou
 
 Reach me at:
 
-- E-mail: andrew@andrewmiyaguchi.com
+- E-mail: XDleader555@gmail.com
 - Discord: Misoguchi#8327
